@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Fantastical for macOS macro with Fantastical for macOS secure Macro: custom themes & database templates. Featuring custom themes and database templates, it's the
 
 
 
